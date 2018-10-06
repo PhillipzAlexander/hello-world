@@ -2,4 +2,4 @@
 
 Starting tutorial
 
-I'm on a journey to become a Video-Game Master, I wasnt to create video games and make them awesome.
+I'm on a journey to become a Video-Game Master, I want to create video games and make them awesome.
